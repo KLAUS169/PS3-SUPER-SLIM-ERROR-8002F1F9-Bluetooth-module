@@ -1,2 +1,1 @@
-# PS3-SUPER-SLIM-ERROR-8002F1F9-Bluetooth-module
-PS3 SUPER SLIM ERROR 8002F1F9 Bluetooth module
+
